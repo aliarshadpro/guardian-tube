@@ -46,5 +46,4 @@ Updates will be posted on this page with a revised "Last Updated" date. Continue
 
 ## 6. **Contact Us**
 For questions or concerns about this policy, contact:  
-**[Your Contact Email]**  
-**[Your Website/Support Page]**  
+**hi@aliarshad.pro**
